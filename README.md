@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @khrlzhfr
-- 👀 I’m interested in fintect and human rights
+- 👀 I’m interested in fintech and human rights
 - 🌱 I’m currently learning how to survive the pandemic
 - 💞️ I’m looking to collaborate on things
 - 📫 How to reach me: kz@khrlzh.fr
